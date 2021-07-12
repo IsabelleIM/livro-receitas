@@ -1,4 +1,4 @@
-**"Livro de Receitas"** :tomato:
+**Livro de Receitas** :tomato:
 
 
 
